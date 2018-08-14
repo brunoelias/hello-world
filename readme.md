@@ -5,3 +5,5 @@ Oi Bruno, tudo bem?
 
 E aí mano ? VAmos fazer esse rio andar ?
 
+Vamos Sim Flávio!
+
